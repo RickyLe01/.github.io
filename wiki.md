@@ -1,5 +1,5 @@
 # Why are Mangos the Best Fruit?
-![A picture of a mango](https://www.google.com/imgres?q=mangos&imgurl=https%3A%2F%2Fdraxe.com%2Fwp-content%2Fuploads%2F2019%2F04%2FDrAxeMangoNutritionFB.jpg&imgrefurl=https%3A%2F%2Fdraxe.com%2Fnutrition%2Fmango-nutrition%2F&docid=IKI51-gM1WslEM&tbnid=tuV2tddyqQm_KM&vet=12ahUKEwin_tSE0-2GAxVGJzQIHf7jDdYQM3oECDIQAA..i&w=1200&h=630&hcb=2&ved=2ahUKEwin_tSE0-2GAxVGJzQIHf7jDdYQM3oECDIQAA)
+![A picture of a mango](https://i.pinimg.com/736x/fc/07/07/fc0707004fc0980a7eb5ed77a5611ca9.jpg)
 
 This page is dedicated to prove why *mangos* are the **superior** fruit compared to any other option. Here you'll be given some history and nutritional facts.
 
